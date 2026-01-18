@@ -6,6 +6,6 @@
 🔗 Portfolio Website:  
 https://chinthagangothri-qgb2xx8.gamma.site/
 
-📧 Email: your-email@gmail.com  
-💼 LinkedIn: your-linkedin-link
+📧 Email: chintagangothri@gmail.com  
+💼 LinkedIn:linkedin.com/in/chintha-gangothri-5a26a2320
 # Portfolio
